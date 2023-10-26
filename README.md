@@ -1,7 +1,4 @@
-- 👋 Hi, I’m @dhirajbodade
-- 👀 I’m interested in finding my interest
-- 🌱 I’m currently learning how to learn 
-- 💞️ I’m looking to collaborate on the collaboration 
+I am a guy who likes to create and explore wonderful things. 
   
 
 <!---
