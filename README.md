@@ -1,7 +1,7 @@
 I am a guy who likes to create wonderful things :)
 Ichigo Ichie !!
 Have a beautiful Day!
-Team Amature OP!!!
+Team Amateur OP!!!
   
 
 <!---
